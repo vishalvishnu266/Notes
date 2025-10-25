@@ -74,6 +74,12 @@ pack animals such as cattle or by people.
 
 
 
+<img width="1677" height="896" alt="image" src="https://github.com/user-attachments/assets/3cac4207-8592-421a-8eac-9a2c61f7b378" />
+
+
+
+
+
 
 
 
