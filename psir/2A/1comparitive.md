@@ -62,3 +62,4 @@ Discuss the subject matter of comparative politics. Outline the limitations of c
 
 Examine the significance of the comparative method in political analysis. Discuss its limitations. (19/20)
 
+

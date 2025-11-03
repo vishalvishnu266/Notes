@@ -6,19 +6,15 @@ Comment: Input-output functions of political system
 
 ## political parties
 
-Of late, centrist and centre-left political parties have been facing setbacks while centre-right parties have been
-in ascendency the world over. Comment. (2025, 20 Marks)
+Of late, centrist and centre-left political parties have been facing setbacks while centre-right parties have been in ascendency the world over. Comment. (2025, 20 Marks)
 
-Critically examine the role of political parties in sustaining and stabilising democracies in the developing
-societies. (2024/15 Marks)
+Critically examine the role of political parties in sustaining and stabilising democracies in the developing societies. (2024/15 Marks)
 
-Has the increased participation of the underprivileged in the political process of the developing societies
-strengthened democracy or created political chaos and conflict? Comment. (20/10)
+Has the increased participation of the underprivileged in the political process of the developing societies strengthened democracy or created political chaos and conflict? Comment. (20/10)
 
 Explain the reasons for low voter turnout in democratic countries with suitable examples. (19/15)
 
-How big a role does identity play in determining political participation in the developing countries? Discuss your
-answer with suitable illustrations (18/10)
+How big a role does identity play in determining political participation in the developing countries? Discuss your answer with suitable illustrations (18/10)
 Party system in India is neither western nor indigenous. Explain. (14/10)
 
 How did the struggle for representation increase the level and quality of democracy in the industrial societies?
