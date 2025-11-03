@@ -98,8 +98,7 @@ Discuss the efficacy of global conventions to combat international terrorism. (2
 Do you agree that the U.N. has failed to contain transnational terrorism? Elaborate your answer with examples.
 (14/10)
 
-Is 'terrorism' an essentially 'contested' concept? What are the different manifestations of 'terrorism' as a
-concept, and as practice? (250 words) (12/20)
+Is 'terrorism' an essentially 'contested' concept? What are the different manifestations of 'terrorism' as a concept, and as practice? (250 words) (12/20)
 
 Answer the following: "Either terrorism triumphs or civilization triumphs." (11/20)
 
@@ -110,5 +109,4 @@ Analyze the basic causes of insurgency and terrorism in two major areas that are
 Discuss the implications of the Trump-Kim Singapore Summit on the prospects of denuclearisation of the Korean
 Peninsula. (18/15)
 
-What roles do norms, taboos and epistemic communities play in the context of nuclear proliferation? (200 words)
-(13/20)
+What roles do norms, taboos and epistemic communities play in the context of nuclear proliferation? (200 words) (13/20)
